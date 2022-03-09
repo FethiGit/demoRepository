@@ -1,0 +1,1 @@
+Okuduysanız kapatabilirsiniz.
